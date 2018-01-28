@@ -16,7 +16,7 @@
 * dal curry
 * köfte
 * burritos
-* lasagne
+* lasagne (ground beef / veggie)
 * sweet sour chicken
 * spaghetti bolognese
 * egg rolls
