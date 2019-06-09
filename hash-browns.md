@@ -4,14 +4,14 @@ The key to good hash browns:
 
 1. DRY potato shreds. If the potato is too wet, they'll be gummy and mushy and the outside won't get crisp.
 
-2. Enough oil. A good amount of oil is the difference between well cooked hashbrowns and hashbrowns that are both burnt AND undercooked. When it doubt, put in more. 
+2. Enough oil. A good amount of oil is the difference between well cooked hashbrowns and hashbrowns that are both burnt AND undercooked. When it doubt, put in more. This is not a healthy dish; don't make it unhealthy *and* undelicious by skimping on the oil.
 
 3. The right amount of heat. Too low will result in mashed-potato-y interior. Too high and the insides won't be fully cooked.
 
 ### Ingredients
 
 * 2 large Russet Potatoes (baked potato sized) or 3-5 smaller. No guarantee on other potato types!
-* 3 tablespoons oil with high smoke point. This means canola, rapeseed, veggie oil. NOT olive oil.
+* 3 tablespoons oil with high smoke point. This means canola, rapeseed, veggie oil.
 * (Optional) 1/2 diced onion
 
 ### Prep
