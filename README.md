@@ -5,13 +5,15 @@
 ## Lunch
 * chicken salad sandwiches
 
-## Soups 
+## Soups
 * turkish lentil soup
 * minestrone soup
 * French onion soup
 
 ## Dinner
 * [chicken curry](chicken-curry.md)
+* [teri chicken](teri-chicken.md)
+* [Pizza](pizza.md)
 * spinach curry
 * dal curry
 * köfte
@@ -28,13 +30,12 @@
 * spicy tuna penne
 * chicken alfredo
 * eggplant oregano basil pasta
-* spinatstrüdel 
+* spinatstrüdel
 * currystrüdel
 * traditional risotto
 * chicken satay & gado gado
-* teri chicken
 
 ## Sides
 * pickles
 * tabouleh
-* spinatknödel 
+* spinatknödel
