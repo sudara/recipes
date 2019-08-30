@@ -21,6 +21,8 @@ Optional ingredients, sometimes I do some, sometimes all:
 * Cayenne if you want them a bit spicy
 * 1-2 tablespoon brown sugar if you want them a bit sweet (good when they are mint-y)
 
+![](images/köfte.jpeg)
+
 ### Prep
 
 I do flat köfte vs. round balls because they cook more evenly. Think little mini burger patties. If they are flat you can cook one side, flip them when the bottom is brown, cook the other side and you are done. If they are rounded you have to roll them around the pan like meatballs and it's hard to get them browned.
