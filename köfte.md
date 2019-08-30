@@ -21,7 +21,7 @@ Optional ingredients, sometimes I do some, sometimes all:
 * Cayenne if you want them a bit spicy
 * 1-2 tablespoon brown sugar if you want them a bit sweet (good when they are mint-y)
 
-![](images/köfte.jpeg)
+![](images/köfte.jpg)
 
 ### Prep
 
