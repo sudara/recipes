@@ -36,6 +36,6 @@
 * chicken satay & gado gado
 
 ## Sides
-* pickles
+* [pickles](pickles.md)
 * tabouleh
 * spinatknödel
