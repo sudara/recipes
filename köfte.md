@@ -33,4 +33,6 @@ Cover bottom of a pan in a mix 50/50 of olive oil and and oil with a higher smok
 
 I do med-high heat, wait for the oil to heat up, then cook in batches. Putting too many in at once lowers the temperature of the oil, so I give them a bit of space and maximum will do 10 at a time. On a normal size cooking pan, 1 pound of meat probably means 2 batches.
 
-Only need a couple min on each side. should be brown like in the pic. If they are burning in a couple min, turn down heat. First batch always cooks slower....
+Only need a couple min on each side. Should be brown like in the pic. If they are burning in a couple min, turn down heat. First batch always cooks slower....
+
+![](images/köfte-cooked.jpg)
