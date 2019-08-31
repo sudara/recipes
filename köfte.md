@@ -1,6 +1,6 @@
 ## Köfte
 
-The key to good Köfte is that they are well seasoned, the right amount of moisture and well browned.
+The key to good Köfte is that they are well seasoned, have right amount of moisture and are well browned.
 
 In terms of moisture, it's a matter of putting in enough dry ingredients such as flour or breadcrumbs to counter the wet onion. This may shock the North Americans, but I typically taste the raw meat mixture to ensure it's salty enough before I begin cooking. While cooking, don't be afraid to get good color on them.
 
