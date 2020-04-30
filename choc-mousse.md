@@ -16,20 +16,20 @@ Goal with the chocolate mixture is to create a balanced but strong choc mixture 
 
 ### Prep
 
-Whip egg whites in a medium bowl until they form stiff peaks.
+Whip egg whites in a medium bowl until they form stiff peaks and set aside.
 
 ### Cook
 
-Melt choc over double boiler. Stir in butter, 2 of the egg yolks and milk while it's melting. You'll have 2 egg yolks leftover to save for another day.
+Melt chocolate over double boiler or like I do, a stainless steel bowl sitting on a normal pot.
 
-Once it's melted, sure it's sweet enough by adding sugar to taste.
+Once the choolate looks like it's melting, stir in sugar, butter, 2 of the egg yolks (you'll have 2 leftover), keeping the mixture moving.
 
-Make sure it's smooth enough by adding milk. It should be pourable and glossy, not lumpy and thick.
+Once everything has melted, make sure it's sweet enough by adding more sugar to taste. It should taste like strong intense chocolate but it shouldn't be too bitter or dark tasting. Now is the time to get it to the flavor profile you love most.
 
-It doesn't need to stay on the heat longer than it takes to melt and mix the ingredients.
+Make sure the consitency is smooth by adding milk in while stirring. The end result should be pourable and glossy, not lumpy and thick.
 
-Take it off the heat and let it cool for a couple minutes, stirring to keep it glossy.
+It shouldn't stay on the heat longer than it takes to melt and mix the ingredients, so once it's sweet enough and glossy enough, take it off the heat and let it cool for a couple minutes. You can stir it every minute or two to keep it glossy.
 
-Fold in the warm choc mixture to the egg whites with a large spoon or silicon spatula until there are no large clumps of visible egg white. Don't over-fold, you want things to stay fluffy. The worst that can happen by underfolding is you might get some solid chocolate chunks.
+Fold in the warm choc mixture to the egg whites with a large spoon or silicon spatula until there are no large clumps of visible egg white. Don't over-fold, you want things to stay fluffy. Underfolding is a better outcome, the worst that can happen by underfolding is you might get some solid chocolate chunks.
 
 Refrigerate overnight to set, or at least a couple hours (it'll still be glossy and soft)
