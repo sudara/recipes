@@ -9,7 +9,7 @@ Goal with the chocolate mixture is to create a balanced but strong choc mixture 
 4 Servings
 
 * 4 eggs
-* 100g bar of dark choc 70-99%
+* 100g bar of dark choc 70-99% cocoa. One of those Lindt 70% dark chocolate bars would be perfect. You can use high quality dark chocolate chips or baking chocolate too, you'll just need to adjust sugar to taste.
 * 2-4 tablespoons sugar, depending on choc %
 * Dab of butter (optional)
 * 1/4-1/2 cup milk
