@@ -1,6 +1,7 @@
 ## Breakfast
 * [restaurant-style hash browns](hash-browns.md)
 * huevos rancheros
+* Waffles
 
 ## Lunch
 * chicken salad sandwiches
@@ -39,3 +40,7 @@
 * [pickles](pickles.md)
 * tabouleh
 * spinatknödel
+
+## Dessert
+
+* [Chocolate Mousse](choc-mousse.md)
