@@ -48,13 +48,19 @@ Ideally the chicken sits and the breading hydrates for 30 min. Be impatient at y
 
 ### Cook 
 
-You are going to fry these in a pot of some kind. Hopefully not too wide, or else you'll need a ton of oil. Hopefully tall enough to avoid too much splattering.
+You are going to fry these in a pot of some kind. Hopefully not too wide, or else you'll need a ton of oil.
 
-Cooking is extremely quick. It should really only take 3-5 minutes for them to cook. Make sure the oil is hot enough by putting some flour or batter in the oil and seeing it bubble and foam.
+Cooking is extremely quick. It should really only take 3-5 minutes for them to cook. I like do them in batches of 3-5 pieces in a smaller tall pot on medium high heat. 
+
+Make sure the oil is hot enough by putting some flour or batter in the oil and seeing it bubble and foam. 
+
+Give them a flip halfway through, as they will brown unevenly unless you are truly deep frying.
+
+You could also just shallow-fry them in a thin layer of oil in a frying pan. 
 
 ### Serve 
 
-I like to make a small amount of homemade BBQ sauce. It's very quick, just bring the following to a simmer and you are done:
+I like to serve with a small amount of homemade BBQ sauce. It's very quick, just bring the following to a simmer and you are done:
 
 
 * 1/3 cup ketchup
