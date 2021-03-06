@@ -65,6 +65,6 @@ I like to make a small amount of homemade BBQ sauce. It's very quick, just bring
 * Pinch of smoked paprika 
 * Couple drops of liquid smoke if you want to get real
 
+![](images/chicken-panko.jpg)
 ![](images/chicken-strips-1.jpg)
 ![](images/chicken-strips-2.jpg)
-![](images/chicken-panko.jpg)
