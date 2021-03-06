@@ -1,6 +1,8 @@
 ## Chicken Strips
 
-Everyone loves a good tendie.
+Everyone loves a good tendie. 
+
+This makes about 20 decent sized ones.
 
 ### The key
 
