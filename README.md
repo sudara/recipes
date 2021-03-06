@@ -19,6 +19,7 @@
 * dal curry
 * [köfte](köfte.md)
 * [Chicken](burrito-chicken.md) Burritos with [guacamole](guacamole.md), [spanish rice](spanish-rice.md) and [pico de gallo](pico.md)
+* [Chicken strips](chicken-strips.md)
 * lasagne (ground beef / veggie)
 * sweet sour chicken
 * spaghetti bolognese
