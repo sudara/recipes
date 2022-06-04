@@ -13,5 +13,7 @@ We are aiming for a 3.5-5% brine, which means that by weight, salt should compos
 
 If you want to aim for half-sour pickles, go for 3.5%. Cornichons use a 5.0%
 
+This is 35g for ever liter of water. Or about 18g for 500ml. 
+
 Tip: Use a kitchen scale to weigh the salt, overly salty pickles are a sad thing to confront after days of fermentation.
 
