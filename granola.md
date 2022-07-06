@@ -22,7 +22,7 @@ Spread out on a parchment or silicon mat covered baking sheet.
 
 ### Cook
 
-* Bake on 150C / 300F for about 25 min or until the edges are brown. 
+* Bake on 150C / 300F for about 25 min or until the edges start to brown. 
 * Stir halfway through the cook time. 
 * Press down after stirring if you like big chunks. 
 
