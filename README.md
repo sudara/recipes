@@ -1,5 +1,6 @@
 ## Breakfast
 * [restaurant-style hash browns](hash-browns.md)
+* [granola](granola.md)
 * huevos rancheros
 * Waffles
 
