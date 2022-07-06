@@ -1,6 +1,6 @@
 ## Granola
 
-Very quick to make, very easy to improvise with. Dump things in a big mixing bowl and bake for 20 min.
+Very quick to make, very easy to improvise with.
 
 I recommend doing a double batch, but you'll have to bake them on 2 sheets or in 2 batches for them to cook evenly.
 
@@ -18,11 +18,13 @@ I recommend doing a double batch, but you'll have to bake them on 2 sheets or in
 
 Dump everything in a big mixing bowl and make sure everything is evenly coated.
 
+Spread out on a parchment or silicon mat covered baking sheet.
+
 ### Cook
 
 * Bake on 150C / 300F for about 25 min or until the edges are brown. 
 * Stir halfway through the cook time. 
-* Press down after stirring if you like big crunchy chunks. 
+* Press down after stirring if you like big chunks. 
 
 It will take 2-3 hours of cooling to get crisp. Wait until then to package in an airtight glass or plastic container.
 
