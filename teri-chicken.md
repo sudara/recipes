@@ -52,6 +52,7 @@ If you want a nice thick glaze sauce (also good for BBQ glaze), bring the marina
 
 * A tablespoon of cornstarch first mixed in a 1/3 cup of cold water until no lumps remain
 
+Taste and adjust the sweet / sour / salty.
 
 ### Serve
 
