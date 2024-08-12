@@ -34,10 +34,16 @@ Frying pan:
 
 * Pull the chicken out of the marinade and onto a plate
 * Keep the marinade, you'll make a pan sauce with it. 
-* You can pat it dry
-* Put in a couple tablespoons of oil into the frying pan of your choice
-* Sear for a couple minutes on each side on high heat. The goal should be to get some browning. A bit of black is ok too.
+* You can pat the chicken dry a bit, it'll help browning.
+* Put in a couple tablespoons of oil of your choice into the frying pan. Olive oil or veggie oil are both fine.
+* Sear for a couple minutes on each side on high heat. The goal should be to get some browning. A bit of black is ok too. It doesn't need to be cooked through, as it'll cook more in the next step.
 * Add the marinade back to the pan
+
+If you want a nice thick glaze sauce (also good for BBQ glaze), bring the marinade to boil for 2 min with:
+
+* A tablespoon of cornstarch first mixed in a 1/3 cup of cold water until no lumps remain
+
+Taste and adjust the sweet / sour / salty.
 
 You could also do the oven instead of the frying pan:
 
@@ -45,14 +51,6 @@ You could also do the oven instead of the frying pan:
 2. Put onions and marinade in dish
 3. Put an extra 1/2 cup water in dish
 4. Arrange pieces skin side up 
-
-### Sauce
-
-If you want a nice thick glaze sauce (also good for BBQ glaze), bring the marinade to boil for 2 min with:
-
-* A tablespoon of cornstarch first mixed in a 1/3 cup of cold water until no lumps remain
-
-Taste and adjust the sweet / sour / salty.
 
 ### Serve
 
