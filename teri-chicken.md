@@ -2,8 +2,8 @@
 
 ### Key To Good Teri Chicken
 
-* Too much undiluted soy sauce + hours of marinating will make the chicken too salty.
-* You don't have to marinate — in that case I would cook longer at a lower temp so the meat has more contact time with the marinade.
+* Too much undiluted soy sauce + hours of marinating will make the chicken too salty. If you will marinate overnight, a 1:1 soy to water ratio is probably best. Otherwise you can use less water.
+* You don't *have* to marinate — in that case I would cook longer at a lower temp so the meat has more contact time with the marinade.
 
 ### Ingredients
 
