@@ -3,7 +3,7 @@
 
 ### The key
 
-In my opinion, the key to good pico is not the ripeness of the tomatoes. It's the ratio of acid (lime), salt and a freshness from onion and cilantro (substitute parsley if you have soap-heads coming over to dinner)
+In my opinion, the key to good pico is not the ripeness of the tomatoes. It's the ratio of acid (lime), salt and and the freshness from onion and cilantro (substitute parsley if you have soap-heads coming over to dinner)
 
 
 ### Ingredients
