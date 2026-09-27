@@ -5,6 +5,7 @@
 * 170g dates, chopped
 * 1 cup water for boiling
 * 1.5 cups flour
+* 3/4 cup (150g) light brown sugar
 * 1 tsp baking soda
 * 2 eggs
 * 80g butter
