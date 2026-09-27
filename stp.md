@@ -21,6 +21,8 @@ sauce:
 * vanilla
 * salt
 
+cook
+
 * Grease 9x9 pan. Preheat 180C
 * Chop dates small
 * Bring water to boil with dates, simmer on low for 5 min
